@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @SkyOfMoon
+- 👀 I’m interested in research
+- 🌱 I’m currently learning computer parts
+- 💞 my hobby is drawing or research
+- 📫 How to reach me snap/or anything I send a link to you
+- ✨ I'm 14
+- 💋 I like to travel
+- 💍 I like to learn
+- -🙈 still trying to figure out my pronouns/gender
